@@ -1,4 +1,4 @@
-Passionate web developer with a love for clean code and elegant designs. 🚀
+Passionate web blockchain developer with a love for clean code and elegant designs. 🚀
 
 
 ## 🌐 Socials:
